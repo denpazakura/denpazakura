@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 - 💅 currently working on: Weather Essentials project
-- 🍒 looking to collaborate on ethical mobile and web projects
+- 🍒 looking for collabs on ethical mobile and web projects
 - 🪭 about me: vegetarian, transhumanist, fitness and longevity enthusiast, cat keeper and much more
 - 💖 pronouns: she/her
 
